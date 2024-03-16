@@ -1,4 +1,4 @@
-The following osu costumes have been compiled and improved:
+The following Osu skins have been combined and improved:
 
 - AS - Zero Two
 - WhiteCat 2.1 ~ old-blue-lite
