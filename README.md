@@ -11,3 +11,5 @@ Songs on the menu:
 
 - Susumu Hirasawa · Gats
 - Nujabes · Aruarian Dance
+
+Images from Berserk
